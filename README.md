@@ -15,7 +15,7 @@ Una vez consolidado el proyecto en el que participaste, en reunión de socios se
 * **Es importante que cuentes con una cuenta en GitHub ya que es la plataforma donde llevamos adelante la vida institucional.**
 
 ## ¿Quieres postularte?
-Completa este simple formulario con tu perfil y algunos ejemplos de trabajo para poder contemplarte e incluir tu participación en futuros proyectos. [BOTÓN FORMULARIO]
+Completa este simple formulario con tu perfil y algunos ejemplos de trabajo para poder contemplarte e incluir tu participación en futuros proyectos. >> [SUMARTE AHORA AQUÍ](https://docs.google.com/forms/d/e/1FAIpQLSeCsOfTr0CMLp2U0JE8hYnkigE-IJUh5MoW1UOYKnAbLm014w/viewform) 
 
 ## ¿Cómo genero mis ingresos en la cooperativa?
 Podrás obtener tus pagos en los proyectos comerciales, directamente del presupuesto asignado a cada proyecto, según tu aportación al mismo. Ese presupuesto está determinado por el responsable comercial, el cual puede ser interno o externo a la cooperativa.
